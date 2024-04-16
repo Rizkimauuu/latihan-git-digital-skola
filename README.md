@@ -1,2 +1,5 @@
 # latihan-git-digital-skola
-Tugas pertemuan ke 5
+Nama : Rizki Maulana
+Alamat : Sumedang
+HP : 082121873511
+Instagram : @rizkymauu
